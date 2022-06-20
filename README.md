@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Linux
 - 📫 How to reach me: https://www.baidu.com
 - 😄 Pronouns: o((>ω< ))o
-- ⚡ Fun fact: o(*￣▽￣*)o
+- ⚡ Fun fact: m( =∩王∩= )m
 - 😅 Where there is a will, there is a way
